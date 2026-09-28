@@ -1,0 +1,1 @@
+# przeistoczona-metafora
